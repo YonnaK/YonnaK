@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YonnaK
+- 👀 I’m interested in gamer stuff
+- 🌱 I’m currently learning art
+- 💞️ I’m looking to collaborate on youtube
+- 📫 How to reach me Yonna#1098
